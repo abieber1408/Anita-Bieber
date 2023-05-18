@@ -1,4 +1,4 @@
-# Name: Anita Bieber Wissing
+# Anita Bieber Wissing
 
 ## Around the World:
 
@@ -12,8 +12,8 @@
 ## Bachelors Degree: Agronomy (Agrarwissenshaftler)
  - Researchprojects: Feed The Future Program, USDA
   -  Aged Cheese Research
-## Co-owner Microbrewery in Spain
-[link](https://f7z3b4v3.rocketcdn.me/wp-content/uploads/2019/12/cerveza-caleya-loopulo-01-1.jpg)
+## Co-owner Microbrewery in Spain </br>[<h5>Cerveza Caleya</h5>](https://f7z3b4v3.rocketcdn.me/wp-content/uploads/2019/12/cerveza-caleya-loopulo-01-1.jpg)
+
 
 
 
