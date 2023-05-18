@@ -7,7 +7,7 @@
 - The Caribbean and 
 - Europe
 
-![link](https://www.istockphoto.com/de/vektor/puerto-rico-und-jungferninseln-politische-karte-gm1221812222-358295945)
+
 
 ## Bachelors Degree: Agronomy (Agrarwissenshaftler)
  - Researchprojects: Feed The Future Program, USDA
@@ -15,12 +15,8 @@
 ## Co-owner Microbrewery in Spain
 [link](https://f7z3b4v3.rocketcdn.me/wp-content/uploads/2019/12/cerveza-caleya-loopulo-01-1.jpg)
 
- 
 
 
-
-
-[link](https://imgur.com/c4MarK6.jpg)
 
 
 [github](https://github.com/abieber1408)
